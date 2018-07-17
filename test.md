@@ -1,5 +1,8 @@
+kory cantik
+
+cantik banget loooo
 test 123
 
 
-change
 kory cantik sekali
+kory cantik
