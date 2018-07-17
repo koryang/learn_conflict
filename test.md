@@ -5,4 +5,3 @@ test 123
 
 
 kory cantik sekali
-kory cantik
