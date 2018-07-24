@@ -5,3 +5,4 @@ test 123
 
 
 kory cantik sekali ga pake aja 
+kory cantik aja
